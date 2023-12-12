@@ -8,6 +8,6 @@ Meu nome e Alisson Gustavo
 
 ### para entrar em contato comigo; alisson.silva.santos21@escola.pr.gov.br
 
-### instagram; @Gthx.ali
+### instagram; @ali.gthx
 
 ![](https://media.tenor.com/JWJRjZFUa_cAAAAC/one-piece-anime.gif)
